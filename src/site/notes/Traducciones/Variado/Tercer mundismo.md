@@ -6,7 +6,7 @@ Joseph Jordan
 4 de Abril del 2024
 https://littoria.substack.com/p/third-worldism
 
-A medida que el sentimiento anti-israeli se cuela en el discurso conservador genreral, una serie de autores judios -algunos de los cuales intentan relacionarse con radicales blancos- han intentado contrarrestar esta tendencia al alza com campanadas Pavlovianas proverbiales: la oposicion al sionismo es la agenda de "la gente morena", "los zurdos", "los antiblancos", y el "tercermundismo".
+A medida que el sentimiento anti-israeli se cuela en el discurso conservador genreral, una serie de autores judios -algunos de los cuales intentan relacionarse con radicales blancos- han intentado contrarrestar esta tendencia al alza con campanadas Pavlovianas proverbiales: la oposicion al sionismo es la agenda de "la gente morena", "los zurdos", "los antiblancos", y el "tercermundismo".
 
 Este discurso pretende reducir un conflicto geopolitico de medio oriente, en el que Israel goza del apoyo militar bipartidista e incondicional de toda la elite estadounidense, a una insignificante cuestion de una guerra cultural domestica de equipo rojo contra equipo azul. Para ver esto en su forma mas basica, hay que observar la cobertura del New York Post del conflicto, que esta ignorando ampliamente todas las noticias reales del conflicto a favor de fotos de manifestantes musulmanes de aspecto nefasto y marxistas de pelo azul sosteniendo carteles de "Queers por Palestina" en las universidades. Esta es una inversion del tipo de apelacion a la izquierda del sionista Bill Maher, que se centra en imagenes de manifestantes ondeando esvasticas y enmarca el apoyo a la causa palestina como una traicion al progresivismo y a los derechos de las minorias.
 
