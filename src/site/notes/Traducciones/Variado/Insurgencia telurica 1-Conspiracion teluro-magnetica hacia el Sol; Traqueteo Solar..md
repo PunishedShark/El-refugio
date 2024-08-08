@@ -2,6 +2,7 @@
 {"dg-publish":true,"permalink":"/traducciones/variado/insurgencia-telurica-1-conspiracion-teluro-magnetica-hacia-el-sol-traqueteo-solar/"}
 ---
 
+**Insurgencia telurica 1-Conspiracion teluro-magnetica hacia el Sol; Traqueteo Solar.**
 Reza Negarestani
 7 de Julio del 2004, 12:17 am
 http://hyperstition.abstractdynamics.org/archives/003535.html [archive](http://web.archive.org/web/20040712005431/http://hyperstition.abstractdynamics.org/archives/003535.html)
