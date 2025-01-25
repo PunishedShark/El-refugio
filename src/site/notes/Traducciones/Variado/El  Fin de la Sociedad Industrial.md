@@ -2,6 +2,7 @@
 {"dg-publish":true,"permalink":"/traducciones/variado/el-fin-de-la-sociedad-industrial/"}
 ---
 
+**El Fin de la Sociedad Industrial**
 Samo Burja
 24 de Marzo del 2021
 https://www.palladiummag.com/2021/03/24/the-end-of-industrial-society/
